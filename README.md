@@ -1,5 +1,5 @@
-# idfk-how-these-work-uhhh-hi
-uhhhhh hi
+# I fucking miss dipshit duo.
+I fucking miss dipshit duo.
 is this an intro thingy or what
 um
 Hello
